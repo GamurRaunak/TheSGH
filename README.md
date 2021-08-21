@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on nothing !
 - 🤔 I’m looking for help with nothing !
 - 💬 Ask me about nothing !
-- 📫 How to reach me: ...
+- 📫 How to reach me: EMAIL-sgh@theloneguy.com
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: You Know Theres a Ghost Behind You Right Now !
 - My Github Stats:
